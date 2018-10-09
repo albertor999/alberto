@@ -2092,3 +2092,375 @@ Galego
 Последна редакция на страницата: в 09:52, на 3 октомври 2018.
 Текстът е достъпен под лиценза Creative Commons Признание-Споделяне на споделеното; може да са приложени допълнителни условия. За подробности вижте Условия за ползване.
 ПоверителностЗа контакт с УикипедияПредупреждениеЗа разработчициИзползване на „бисквитки“Мобилен изглед
+
+
+
+
+
+
+
+
+
+
+
+Infotaula de personaChe Guevara
+CheHigh.jpg
+Fotografia "Guerrillero Heroico"
+Nom original	(es) Ernesto Guevara
+Biografia
+Naixement	Ernesto Guevara
+14 de juny de 1928
+Rosario, Argentina
+Mort	9 d'octubre de 1967 (als 39 anys)
+La Higuera, Bolívia
+Causa de mort	Afusellament
+Lloc d'enterrament	Mausoleu de Che Guevara
+Residència	Argentina
+Nacionalitat	Argentina-cubana
+Religió	Ateisme
+Formació professional	Medicina
+Educat a	Universitat de Buenos Aires . medicina (1948–1953)
+Activitat
+Ocupació	Metge i escriptor
+Interessat en	Escacs, rugbi a 15, poesia i lectura
+Nom de ploma	Che 
+Luís Hernández Gálvez 
+Chang-Cho 
+Tatu 
+Adolfo Mena González 
+Ramón 
+Chancho 
+Furibundo Serna 
+Fuser 
+Pelado 
+Teté 
+Fernando Sacamuelas
+Conflicte	Revolució cubana i Ñancahuazú Guerrilla Tradueix
+Altre
+Membre del partit polític	Moviment 26 de Juliol
+Cònjuge	Hilda Gadea
+Aleida March Torres
+Fill/a	Hilda, Aleida, Camilo, Celia i Ernesto
+Pares	Ernesto Guevara Lynch Tradueix, Celia de la Serna Tradueix
+Premi rebut
+[mostra]
+Signatura
+
+IMDB: nm0346466
+[més dades]
+Ernesto Guevara, més conegut com a Che Guevara, o simplement com a el Che, (Rosario, Argentina, 14 de juny de 1928[Nota 1] - La Higuera, Bolívia, 9 d'octubre de 1967) fou un polític, guerriller, escriptor i metge argentino-cubà.[Nota 2]
+
+Fou un dels líders de la Revolució Cubana. A la dècada dels anys seixanta s'establí amb un petit grup de guerrillers a Bolívia on fou capturat i assassinat de manera clandestina per l'exèrcit bolivià amb la col·laboració de la CIA.
+
+Pòstumament, s'ha convertit en un símbol d'abast mundial; pels seus partidaris simbolitza la lluita contra les injustícies socials o la rebel·lió i l'esperit incorruptible, mentre que pels seus detractors és vist com un assassí en massa i un criminal, acusant-lo, a més a més, d'una nefasta gestió com a Ministre d'Indústria del govern cubà. El contorn del seu rostre, obtingut a partir d'una foto d'Alberto Korda, ha estat denominada com "la fotografia i la icona gràfica més famosa del segle XX" segons l'Institut d'Art de Maryland.[1]
+
+
+Contingut
+1	Biografia
+2	Pensament
+3	Genealogia
+4	Matrimonis i fills
+5	L'adhesió al Che Guevara
+6	Oposició al Che Guevara
+7	Curiositats
+7.1	L'asma de Félix Rodríguez
+7.2	Perón i la seva opinió sobre el Che
+7.3	Ernesto Guevara i el futbol
+8	En la cultura popular
+8.1	Cinema
+8.2	Música
+8.3	Poesia
+8.4	Altres expressions artístiques
+9	Llibres, quaderns i articles escrits per Che Guevara
+9.1	Altres documents inèdits
+10	Notes i referències
+10.1	Notes
+10.2	Referències
+11	Enllaços externs
+Biografia
+Cronologia bàsica
+1928 - Neix a Rosario
+1951 - Inicia una sèrie de viatges amb motocicleta amb el seu amic Alberto Granado al llarg d'Amèrica del Sud
+1953 - Es llicencia de Medicina a Buenos Aires i s'aproxima a la ideologia comunista
+1956 - S'adhereix a la revolució cubana
+1959 - Esdevé ciutadà cubà
+1961 - Participa en la conferència dels estats americans a Punta del Este
+1964 - Inicia un viatge a l'Àfrica
+1965 - Dimiteix dels seus càrrecs a Cuba. Viatja al Congo i prepara la guerrilla a Bolívia
+1966 - Comença a escriure el "Diario"
+1967 - És capturat per l'exèrcit a la selva boliviana i és afusellat sense judici
+Nasqué en el si d'una família burgesa de Rosario (Argentina). Pareix que als dos anys emmalaltí d'asma, que sofrí tota la seva vida, per la qual cosa la seva família es va mudar a un lloc de clima més sec, a Alta Gracia (Córdoba), Argentina, sense que la seva malaltia millorés. La seva educació primària va ser a la seva llar, a càrrec de la seva mare, Celia de la Serna.
+
+Estudiant de medicina, passà a Guatemala, on s'adherí a les tesis populistes del president del país Jacobo Arbenz, que fou derrocat pels filoimperialistes. Perseguit pels nous governants, deixà Guatemala per establir-se a Mèxic. Allà s'uní al cercle revolucionari de cubans exiliats que encapçalava Fidel Castro. Fou un dels supervivents de l'operació Granma, i juntament amb Castro i Camilo Cienfuegos integrà la tríada que comandà el triomf militar dels revolucionaris contra el govern Batista el gener de 1959.
+
+Dins del nou govern cubà organitzà i dirigí el Instituto Nacional de la Reforma Agraria, des d'on instituí noves lleis agràries, després d'expropiar els grans terratinents. Participà en el Departamento de Industrias i també fou nomenat president del Banco Nacional de Cuba. Fou la figura cabdal de l'internacionalisme cubà, i de la defensa de la solidaritat antiimperialista dels països d'Amèrica, Àfrica i Àsia, que queda reflectida en el seu discurs a Alger (1963).
+
+El 1965 sorprengué el món amb la renúncia als seus càrrecs governamentals a Cuba, per dirigir la lluita revolucionària del Congo. Després d'aquesta experiència, es dedicà a la lluita guerrillera a diversos països americans i, finalment, a Bolívia (1966).
+
+Capturat per l'exèrcit bolivià, amb la col·laboració de la CIA, fou assassinat el 1967. El 1997 les seves despulles (descobertes el 1995), foren enterrades a Cuba amb els màxims honors.
+
+Che Guevara va esdevenir un mite, i molts joves el tenen com a ídol. Se li han dedicat moltes cançons com Hasta siempre comandante Che Guevara de Carlos Puebla i versionada per Boikot, Ska-P i Piquete de Ojos o Canción del elegido de Silvio Rodríguez.
+
+Pensament
+El Che Guevara va desenvolupar una sèrie d'idees i conceptes que actualment es coneix com el "guevarisme". El seu pensament prenia l'antiimperialisme, el marxisme i el comunisme com a elements de base, però amb reflexions sobre la forma de realitzar una revolució i crear una societat socialista que li donaren una identitat pròpia.
+
+Guevara atorgava un paper fonamental a la lluita armada. A partir de la seva pròpia experiència va desenvolupar tota una teoria sobre la guerrilla que ha estat definida com a foquisme. Per ell, quan en un país existien les "condicions objectives" per a una revolució, un petit focus guerriller podia crear les "condicions subjectives" i desencadenar un aixecament general de la població.
+
+Per al Che existia un vincle extret entre la guerrilla, els pagesos i la reforma agrària. Aquesta posició va diferenciar el seu pensament del socialisme europeu o soviètic, més relacionat amb la importància de la classe obrera industrial, i l'apropà a les idees maoistes. El seu llibre La Guerra de Guerrillas és un manual on s'exposen les tàctiques i estratègies utilitzades a la guerrilla cubana.
+
+Atorgava un rol fonamental a l'ètica individual, tant del guerriller durant la revolució, com del ciutadà en la societat socialista. Aquest aspecte el va desenvolupar sota el concepte del "home nou socialista", al que veia com a un individu altament mogut per una ètica personal que l'impulsa a la solidaritat i el bé comú sense necessitat d'incentius materials per a ell. En aquest sentit Guevara atorgava un valor central al treball voluntari, que veia com l'activitat fonamental per a formar al "nou home".
+
+Genealogia
+En moltes biografies i cròniques d'Ernesto Che Guevara, se'l reconeix com el guerriller argentí-cubà o com un dels líders de la revolució cubana de 1959. Una de les coses que més s'ha estudiat del seu personatge és l'origen del seu cognom matern, De la Serna, que sembla provenir en línia directa de José de la Serna, però malauradament aquest virrei no va tenir descendència coneguda (ni legítima ni ilegítima), pel que sembla que els orígens del cognom provenen d'un contemporani del virrei Juan Manuel de la Serna y de la Quintana, natural d'Ontón (Cantàbria), que deixà descendència en l'antic virregnat del Río de la Plata, a l'actual Argentina.
+
+Matrimonis i fills
+
+A la foto: Aleida March, Camilo (h), Hilda (h), Che amb Celia (h) a braços i Aleida (h), 1963.
+Ernesto Guevara es va casar dues vegades i tingué sis fills.
+
+El seu primer matrimoni va ser amb Hilda Gadea[2] i es van casar el 18 d'agost del 1955 a Mèxic. Hilda Gadea era una economista i dirigent peruana de l'APRA a qui Guevara va conèixer a Guatemala. Junts van tenir una filla:
+
+Hilda Beatriz Guevara Gadea (1956-1995), nascuda el 15 de febrer de 1956.
+Ernesto Guevara es va divorciar de Hilda Gadea el 1959. Després de la Revolució Cubana Hilda va raure a Cuba on va ocupar alts càrrecs. Va escriure un llibre sobre el seu exmarit amb el títol de Che Guevara: los años decisivos (Mèxic: Aguilar Editor, 1972). Havia nascut el 1925 i va morir a L'Havana el 1974.
+
+El segon matrimoni va ser amb Aleida March Torres (n. 1936) el 9 de juny del 1959 a L'Havana. Aleida March era una militant cubana del Moviment 26 de Juliol (M-26-7) de la província de Las Villas a qui Guevara va conèixer el 1958 quan desenvolupava la seva ofensiva final sobre el règim de Batista poc abans de la batalla de Santa Clara. Junts van tenir un total de quatre fills:
+
+Aleida Guevara March, nascuda el 17 de novembre de 1960
+Camilo Guevara March, nascut el 20 de maig de 1962
+Celia Guevara March, nascuda el 14 de juny de 1963
+Ernesto Guevara March, nascut el 24 de febrer de 1965
+Aleida March presideix el Centre d'Estudis Che Guevara, ubicat a la casa que compartiren a L'Havana.
+
+Ernesto Guevara, va tenir també un fill fruit d'una relació extramatrimonial amb Lidia Rosa López:
+
+Omar Pérez, nascut el 19 de març de 1964
+Encara que no va ser reconegut, Ernesto Guevara li va elegir el nom.[3]
+
+L'adhesió al Che Guevara
+
+El polític hongkonguès Leung Kwok-hung amb la seva clàssica samarreta del Che
+Amplis sectors, en diferents països del món, especialment entre els grups juvenils i progressistes, han manifestat la seva adhesió a les accions, personalitat i ideals del Che Guevara.
+
+L'estesa identificació amb el Che Guevara en diferents països del món ha sorprès molts analistes que han intentat explicar el fenomen recorrent a diverses hipòtesis: la recerca d'exemples ètics per part de la joventut, la identificació amb la seva personalitat frontal, la comercialització de la seva imatge, la seva mort violenta quan era encara jove, les similituds físiques amb Jesucrist.
+
+Personalitats de les més diverses ideologies i característiques han expressat la seva simpatia pel Che Guevara, com Jean Paul Sartre, Juan Domingo Perón, els futbolistes Diego Maradona i Thierry Henry, el boxejador Mike Tyson,[4] el líder hongkonguès Leung Kwok-hung, el músic Carlos Santana, l'actor Pierre Richard, l'escriptor Gabriel García Márquez, el líder txetxè Xamil Bassàiev, el grup musical Rage Against the Machine o el dirigent sandinista Edén Pastora, entre molts d'altres.
+
+El 2006, el president electe de Bolívia, Evo Morales, va ordenar col·locar un gegantí retrat del Che Guevara al palau presidencial. L'any 2007 el Che Guevara va ser elegit pel públic argentí com a un dels cinc argentins més destacats de la història, juntament amb Juan Manuel Fangio, José de San Martín, René Favaloro i Alberto Olmedo, en el programa de televisió El gen argentino.[5]
+
+Oposició al Che Guevara
+
+Estàtua del Che a Cuba
+També existeixen sectors que s'oposen a les accions i figura d'Ernesto Guevara, especialment en la comunitat de cubans a exiliats, grups anticomunistes, neoliberals, entre altres, que el titllen d'assassí i de terrorista.[6][7]
+
+Entre els actes censurables que li atribueixen a Guevara es troba l'execució de centenars d'opositors, principalment quan comandà la Fortalesa de La Cabaña, com també pagesos a les regions controlades o visitades per les seves forces guerrilleres.
+
+També assenyalen que Guevara va fundar el sistema cubà de camps de treball, quan va establir el primer d'ells a Guanahacabibes, per a reeducar als directors d'empreses estatals considerat culpables de violacions a l'«ètica revolucionària».[8] Segons senyala Jorge Castañeda a la seva biografia sobre Che Guevara, després d'anar-se Guevara de Cuba, aquests camps van ser utilitzats per a enviar dissidents, homosexuals i, després de més de dos dècades de la mort de Guevara, malalts de sida."[9][8]
+
+Els opositors a la figura del Che també remarquen les seves idees comunistes, que consideren que eren de caràcter totalitari, i la influència que va tenir perquè Cuba s'adherís al comunisme i, durant la Guerra Freda, ingressés al bloc comunista conduït per la Unió Soviètica.
+
+El polític espanyol Pablo Casado Blanco, dirigent de les joventuts del Partit Popular, va dir que "els joves del PP idolatren a màrtirs com el regidor d'Ermua Miguel Ángel Blanco assassinat per ETA el 1997, no a assassins com el Che Guevara, com fan els d'esquerres".[10]
+
+L'any 2005, després que el guitarrista Carlos Santana portés una samarreta del Che a la cerimònia dels Oscars, el cubà Paquito D'Rivera, escrigué una carta oberta censurant a Santana per donar suport el que qualificava com a «Carnicer de La Cabaña». A la seva carta D'Rivera es refereix al període el qual el Che Guevara va estar al comandament de La Cabaña supervisant els «judicis revolucionaris» i l'execució dels dissidents condemnats, entre els quals es trobava el seu propi cosí, el qual sosté que fou empresonat a La Cabaña a causa de la seva condició de cristià i que afirma haver estat testimoni de l'execució de gran quantitat de persones pel fet de tenir creences cristianes.[11]
+
+Els seus detractors sostenen que els admiradors del Che han realitzat una gran propaganda per a presentar-lo com un guerrer formidable, però que en realitat va ser un pobre estrateg. Fonamentalment sostenen que, atenent als resultats, Guevara va fracassar en la direcció de l'economia cubana, car «supervisà el quasi col·lapse de la producció de sucre, el fracàs de la industrialització i la introducció del racionament -tot això, en la que havia estat una de les quatre nacions llatinoamericanes més reeixides des d'abans de la dictadura de Batista-».[12][13]
+
+El periodista estatunidenc Paul Berman, en un article en anglès titulat «El culte del Che: no aplaudeixin Diarios de motocicleta» (2004),[14] critica la pel·lícula Diarios de motocicleta i sosté que "aquest culte modern del Che" enfosqueix l'"impressionant conflicte social" que actualment està tenint lloc a Cuba. Per exemple, l'article menciona l'empresonament de dissidents, com el poeta i periodista Raúl Rivero, que fou finalment alliberat després de la pressió internacional deguda a una campanya de solidaritat internacional dirigida pel Comitè Internacional per la Democràcia a Cuba[15] que comptà amb el suport d'antics dissidents del bloc soviètic i altres personalitats com el Václav Havel, Lech Wałęsa, Árpád Göncz, Elena Bonner, entre d'altres. Berman afirmà que als EUA, on Diarios de Motocicleta rebé ovacions en el Festival de Cinema de Sundance, l'adoració del Che ha causat que els estatunidencs passin per alt la situació urgent dels dissidents cubans.
+
+La figura d'Ernesto Guevara també ha estat criticada des de sectors radicals, principalment anarquistes i llibertaris civils, considerant-lo una persona autoritària la qual tenia com a fita la creació d'un règim d'estat estalinista i burocràtic.[16][17]
+
+Curiositats
+L'asma de Félix Rodríguez
+Félix Rodríguez, l'agent de la CIA que tingué una intervenció decisiva sobre la captura i l'assassinat del Che Guevara realitzà, l'any 1992, el següent relat sobre l'efecte emocional que li causà el fet:
+
+«	En caminar, amb l'aire fresc de la muntanya, em vaig adonar que panteixava i se'm feia difícil respirar. El Che estava mort però la seva asma, un mal que mai havia patit en la meva vida, se m'havia transmès. Encara avui la meva crònica falta d'alè és un record constant del Che i de les seves últimes hores de vida a l'aldea de La Higuera.[18]	»
+— Félix Ismael Rodríguez
+Perón i la seva opinió sobre el Che
+«	Era un dels nostres, potser el millor: un exemple de conducta, de despreniment, d'esperit de safrici i de renunciament. La profunda convicció en la justícia de la causa que abraçà, li donà la força, el valor, el coratge que avui l'eleva a la categoria d'heroi i de màrtir...	»
+— Juan Domingo Perón
+Ernesto Guevara i el futbol
+El periodista i escriptor argentí Hugo Gambini detallà en el seu llibre "El Che Guevara" (de 1968) els inicis de la relació d'Ernesto Guevara amb el futbol:
+
+«	Llegia les cròniques esportives per a informar-se sobre els campionats professionals de futbol i com que la majoria dels seus amics eren addictes als mateixos clubs (Boca Juniors o River Plate), Ernesto en volgué escollir un de diferent. Quan descobrí l'existència del Rosario Central, un club de la ciutat on ell havia nascut, s'adherí fervorosament a la seva divisa.
+A partir d'aquell instant li encantava que li preguntaren de quin equip era, perquè li donava l'oportunitat de respondre amb certa altivesa: "De Rosario, de Rosario Central. Jo sóc rosarià".[19]
+
+»
+— Hugo Gambini
+Osvaldo Bayer, escriptor argentí i fanàtic del Rosario Central, decidí fer-li una entrevista a la prestigiosa germana del Che, Celia. Aquesta accedí amb la condició que no li preguntés pel seu germà. L'entrevista transcorregué amena, però al final de l'entrevista Bayer li demanà fer-li una pregunta sobre el seu germà; ella accedí i li digué: Queda't tranquil Osvaldo, que Ernesto era del Central.
+
+Alberto Granado, amic personal del Che i company de ruta en els seus viatges, ho confirmà en diverses oportunitats. Explicà que Ernesto sempre fou un aficionat del Central per dues raons; la primera, perquè nasqué a Rosario, i la segona, perquè a Ernesto li encantava el jugador Chueco Garcia.[20]
+
+Avui dia, al Museu del Che de L'Havana hi descansa la samarreta blava i or de Rosario Central llistada vertical.[20]
+
+En la cultura popular
+«	Aquí es queda la clara,
+l'entranyable transparència
+de la teva estimada presència
+Comandant Che Guevara.	»
+[Traducció del castellà] Hasta siempre, comandante
+Carlos Puebla
+La figura d'Ernesto Guevara ha estat motiu de gran quantitat d'obres artístiques, tant a Cuba com a la resta del món. Sens dubte una de les més conegudes, és la cançó Hasta siempre comandante (Fins sempre comandant), composta per Carlos Puebla, que s'ha convertit en un clàssic de la cançó llatinoamericana.
+
+Cinema
+Diverses pel·lícules han estat dedicades totalment o parcialment a la figura del Che Guevara, entre les quals destaquen Diarios de motocicleta (2004) de Walter Salles i les recents The Argentine i Guerrilla del director Steven Soderbergh.
+
+Any	Pel·lícula	Director	Actor protagonista
+2008	The Argentine	Steven Soderbergh	Benicio del Toro
+2008	Guerrilla	Steven Soderbergh	Benicio del Toro
+2005	Che Guevara	Josh Evans	Eduardo Noriega
+2004	Diarios de motocicleta	Walter Salles	Gael García Bernal
+1969	Che!	Richard Fleischer	Omar Sharif
+1968	El 'Che' Guevara	Paolo Heusch	Francisco Rabal
+Música
+Nombroses cançons i obres musicals han estat inspirades en el Che Guevara, en els més diversos ritmes, estils i idiomes. Algunes de les més conegudes són:
+
+Hasta siempre, comandante, cançó de Carlos Puebla
+Si el poeta eres tú, cançó de Pablo Milanés
+El hombre de la estrella, de la banda argentina La Renga
+El aparecido, de Víctor Jara
+Gallo Rojo, dels Fabulosos Cadillacs[21]
+Esquina libertad, de Los Piojos.
+Fusil contra Fusil (1977), Hombre (1987) de Silvio Rodríguez[22]
+Soldadito boliviano de Nicolás Guillén musicalitzat per Paco Ibáñez[23]
+Papá cuéntame otra vez, d'Ismael Serrano a l'àlbum Atrapados en azul[24]
+Poesia
+Entre les més destacades es troben:
+
+Tristeza en la muerte d'un héroe, del xilè Pablo Neruda (1969)[25]
+Yo tuve un hermano de l'argentí Julio Cortázar[26]
+La sèrie de poemes dedicatoris anomenats A Ras del Sueño de l'uruguaià Mario Benedetti (1967).
+Che Guevara (1958), Che Comandante, Guitarra en duelo mayor,[27] del cubà Nicolás Guillén
+El poema visual Elegia al Che del català Joan Brossa (1978)
+Credo del Che, del salvadorenc Roque Dalton
+Pensamientos de l'argentí Juan Gelman[28]
+Sé que la delación existe del jujeño Néstor Groppa
+
+Perfil del Che Guevara realitzat per Jim Fitzpatrick
+Altres expressions artístiques
+Entre la varietat d'expressions artístiques dedicades al Che Guevara es poden mencionar una historieta biogràfica (1968) d'Héctor Germán Oesterheld i Enrique i Alberto Breccia, un videojoc Guerrilla War (1989, SNK). També destaca una famosa fotografia realitzada per Alberto Korda (Que és la fotografia que més s'ha reproduït a la història) i l'igualment famós perfil inspirat en aquella, realitzat per Jim Fitzpatrick.
+
+Llibres, quaderns i articles escrits per Che Guevara
+Diccionario Filosófico (1946-1957), publicat parcialment
+Índice literario (1946-1957), inèdit
+La angustia (1951), conte publicat per Pàgina/12, 1992
+Machu Picchu: enigma de piedra en América, 1953
+Notes de viatge de Diarios de motocicleta Redactades sobre el seu quadern de notes durant el viatge
+Aquí va un soldado de las Américas, cartes a la seva família recopilades pel pare.
+La guerra de guerrillas, 1960
+Recuerdos de la guerra revolucionaria cubana, 1963
+Apuntes críticos a la economía política, L'Havana, 2006
+La duda, conte curt escrit al Congo
+La piedra, conte curt, escrit possiblement a l'època que morí la seva mare.
+Diario del Che en Bolivia, 1968 (publicat a Buenos Aires, Legasa, 1994)
+Obras Completas, 1997. Inclou inèdits
+Pasajes de la guerra revolucionaria: Congo, publicat el 1999
+Carta inédita de Guevara a Armando Hart Dávalos, publicat per la revista cubana Contracorriente, 1997
+Otra vez (El diari inèdit del segon viatge per Amèrica Llatina 1953-1956), publicat el 2000,
+Diario d'un combatiente (Anderson,724), inèdit
+Poema d'Ernesto Guevara deixat a la seva esposa Aleida. Ha manifestat que només serà publicat quan ella mori.
+Altres documents inèdits
+Existeix una gran quantitat d'escrits, poesies i material inèdit d'Ernesto Guevara, la major d'ells en poder de la seva vídua, Aleida March, presidenta del Centre d'Estudis Che Guevara. Periòdicament i de manera pautada, March ha anat alliberant i publicant alguns d'aquests documents, com va fer el 1999 amb el Diario del Congo. L'últim document fins al moment alliberat va ser l'octubre del 2007 quan se celebrava el 40è aniversari ide la seva mort i era l'última carta que Guevara li escrigué quan ja estava a Ñancahuazú, Bolívia.[29]
+
+Notes i referències
+Notes
+ La data del naixement que apareix la seva acta de naixement és del 14 de juny de 1928. Julia Constenla, historiadora i amiga personal de la mare d'Ernesto Guevara, Celia de la Serna, ha explicat que Celia havia confessat que ja es trobava embarassada en el moment de casar-se i que la veritable data de naixement del seu fill és el 14 de maig, i que la partida de naixement fou falsificada un mes més tard per tal d'evitar un escàndol. «Entrevista a Julia Constenla realizado por Luciana Peker», Pàgina/12, 3 de març de 2005. El biògraf Jon Lee Anderson accepta com a vàlida aquesta versió. Jon Lee Anderson (1997): Che Guevara: una vida revolucionaria, Barcelona: Anagrama, pág. 17.
+ La Llei Fonamental de la República (del 7 de febrer de 1959) permet atorgar la condició de ciutadà cubà per naixement als estrangers que «per mèrits excepcionals aconseguits en les lluites per a l'alliberament de Cuba». El 9 de febrer (algunes fonts indiquen que fou el mateix dia 7) un decret del Consell de Ministres reconeix aquesta condició a Ernesto Che Guevara. Guevara renuncià a la seva nacionalitat cubana l'any 1965, en la seva famosa carta de comiat escrita a Fidel Castro. La validesa legal d'aquesta renuncia ha estat discutida.
+Referències
+ Che Guevara photographer dies, BBC News, 26 May, 2001.
+ Cecilia Bustamente escribe sobre Hilda Gadea y Ernesto Che Guevara, Blogger
+ Castañeda, Jorge (1997). Companero: vida y muerte del Che Guevara
+ Mano a mano con Tyson: "Ustedes tienen un corazón que los americanos nunca entenderán", Ole, 9 de novembre de 2005.
+ ¿Quién será el gen argentino?, Diario El Día, 2007
+ Al voltant de la icona del Che, per Fernando Díaz Villanueva, Institut Juan de Mariana
+ La màquina de matar, per Álvaro Vargas Llosa
+ Samuel Farber, "The Resurrection of Che Guevara", estiu de 1998 (en anglès). Disponible en línia a William Paterson University, Consulta:18 de juny del 2006.
+ Castañeda, Jorge G.: Compañero. Vida y muerte del Che Guevara (originalment titulat La vida en rojo), Vintage Español, Nueva York, 1997, p. 227. ISBN 0-679-78161-7
+ "Los jóvenes idolatramos a mártires como Miguel Angel Blanco, no a asesinos como el Che", Público.es, 20 de septiembre de 2008. [consult. 28-02-2009]
+ (en anglès) Paquito D'Rivera: "Open letter to Carlos Santana by Paquito D'Rivera in Latin Beat Magazine", 25 de març de 2005. Disponible en línia a través de Find Articles Online, consulta: 18 de juny de 2006
+ History News Network, "Che Guevara... The Dark Underside of the Romantic Hero" (en anglès). Disponible en línia en History News Network, consulta: 26 de febrer de 2006
+ Free Cuba Foundation, "Che Guevara's Dubious Legacy" (en inglés). Disponible en línia en Free Cuba Foundation, consulta: 26 de febrer de 2006
+ Paul Berman, The Cult of Che: "Don't applaud The Motorcycle Diaries", 24 de setembre de 2004. Texto de la cubierta disponible en línia, últim accés 18 de juny de 2006.
+ Ministeri d'Assumptes Exteriors de la República Txeca, "International Committee for Democracy in Cuba". Disponible en línia, consulta: 18 de juny de 2006.
+ Libertarian Community, "Ernesto "Che" Guevara, 1928-1967" (en anglès). Disponible en línea, consulta: 26 de febrer de 2006
+ La máquina de matar: El Che Guevara, de agitador comunista a marca capitalista, per Álvaro Vargas Llosa
+ Anderson:691
+ Agencia EFE Deportes
+ Entrevista a Alberto Granado
+ Gallo Rojo, Fabulosos Cadillacs
+ Hombre (1968) de Silvio Rodríguez
+ Canciones y poesías musicalizadas dedicadas o alegóricas a Ernesto Che Guevara, San Cristóbal
+ Papá cuéntame otra vez, Ismael Serrano
+ Tristeza por la muerte de un héroe, de Pablo Neruda, Aporrea
+ Yo tuve un hermano, Julio Cortázar
+ Che, Guía y Ejemplo: Poesías: Guitarra en duelo mayor, Nicolás Guillén
+ Pensamientos, de Juan Gelman
+ Documentos inéditos facilitados por su viuda, Aleida March, El País, 7 de octubre de 2007
+Enllaços externs
+	Vegeu texts en català sobre Che Guevara a Viquitexts, la biblioteca lliure.
+En altres projectes de Wikimedia:
+Commons
+Commons (Galeria)
+Commons
+Commons (Categoria) Modifica l'enllaç a Wikidata
+Viquidites
+Viquidites
+Che, Guía y Ejemplo: Photos, Songs(mp3) and Videos
+Plana sobre Ernesto 'Che' Guevara font inicial d'informació, disponible sota llicència GFDL
+Biografia
+[mostra]Vegeu aquesta plantilla
+Guerra Freda
+Registres d'autoritat	
+WorldCat CANTIC: a10486355 BNE: XX890987 BNF: cb11886483d GND: 118543369 LCCN: n79018345 VIAF: 31991306 ISNI: 0000 0001 2095 861X SELIBR: 266654 SUDOC: 026658046 BIBSYS: 90245570 MusicBrainz: b5316590-b39e-4991-8602-dbf276361eed NLA: 35156105 NDL: 00441936 NKC: jn19981001363 RLS: 000007184 ICCU: IT\ICCU\CFIV\069244
+Bases d'informació	
+GEC: 0031549 IMDb: nm0346466
+1000HA.png
+
+Categories: Persones de Rosario (Argentina)MarxistesComunistes americansArgentins d'ascendència bascaGuerrillers cubansPolítics argentinsGran Creu de l'orde de la Creu del SudMetges argentins
+Menú de navegació
+Sense sessió iniciadaDiscussió per aquest IPContribucionsCrea un compteInicia la sessióPàginaDiscussióMostraModifica
+Més
+Cerca
+
+Cerca a Viquipèdia
+Portada
+Article a l'atzar
+Articles de qualitat
+Comunitat
+Portal viquipedista
+Canvis recents
+La taverna
+Contacte
+Xat
+Donatius
+Ajuda
+Eines
+Què hi enllaça
+Canvis relacionats
+Pàgines especials
+Enllaç permanent
+Informació de la pàgina
+Element a Wikidata
+Citau aquest article
+Imprimeix/exporta
+Crear un llibre
+Baixa com a PDF
+Versió per a impressora
+En altres projectes
+Commons
+Viquidites
+Viquitexts
+
+En altres idiomes
+العربية
+Asturianu
+Български
+বাংলা
+Ελληνικά
+English
+Español
+Euskara
+Galego
+142 més
+Modifica els enllaços
+La pàgina va ser modificada per darrera vegada el 2 set 2018 a les 20:21.
+El text està disponible sota la Llicència de Creative Commons Reconeixement i Compartir-Igual; es poden aplicar termes addicionals. Vegeu les Condicions d'ús. Wikipedia® (Viquipèdia™) és una marca registrada de Wikimedia Foundation, Inc.
+Política de privadesaQuant al projecte ViquipèdiaRenúnciesDesenvolupadorsDeclaració de cookiesVersió per a mòbils
