@@ -206,3 +206,130 @@ Email*
 
 Website
 Comentando aceptas nuestra política de pr
+
+
+¿CÓMO SE ESCRIBE NACIS?
+
+nacis
+En español diversas letras comparten el mismo sonido, estó da lugar a infinidad de dudas ortográficas, en muchos casos estas dudas se pueden resolver aplicando las reglas generales de ortografía. Por esa razón, si dudas de como se escribe una palabra, introdúcela en nuestro corrector y te la corregimos mostrándote la regla que deberás aplicar para poderla escribir correctamente. Los errores ortográficoas más comunes son:
+
+Acentuación de las palabras sobre todo en caso de que la sílaba tónica forme parte de un hiato o un diptongo
+Empleo de las letras j y g porque dependindo de la palabra la letra g ha de pronunciarse con el fonema /j/
+Empleo de las letras c,z y el dígrafo qu para los fonemas /z/ /k/ y /s/, el fenómeno del seseo y del ceceo
+Empleo de las letras y, ll para los fenemoas /y/ y /ll/ y ek fenómeno del yeísmo
+Empleo de las letras b,v y w ya que tienen el mismo fonema /b/
+Empleo de la letra x para representar el fonema /s/ o /k+s/
+Empleo de la letra h
+Empleo de r o rr
+LA PALABRA NACIS SE ESCRIBE CON Z
+La manera correcta de escribirla es NAZIS. Puedes ver la definición de nazis aquí
+
+El sonido /z/ se escribe con la letra z delante de las vocales "a,o,u", antes de consonante como por ejemplo en amanezca, brizna, juzgar y al final de palabra como en lápiz.
+
+En este caso el fonema /z/ va seguido de la vocal "i" por lo que debe escribirse con "z"
+
+Hay palabras en las que el fonema /z/ puede escribirse tanto con "z" como en "c", en estos casos es preferible escribirlo con la letra "c", por ejemplo: ácimo/ázimo, acimut/azimut, cigoto/zigoto, cinc/zinc, eccema/eczema, magacín/magazín
+
+Existen palabras con z delante de las vocales "e,i" se trata normalmente de préstamos lingüísticos de otros idiomas, onomatopeyas y topónimos de origen foráneo
+
+39 PALABRAS QUE SON EXCEPCIÓN A LA REGLA QUE DICE QUE EL FONEMA /Z/ SE ESCRIBE CON "C" ANTES DE LA VOCAL "I"
+nazi, enzima, zinc, nazismo, enzimática, paparazzi, zigzag, magazines, neonazis, enzimático, enzimáticos, coenzima, neonazi, jacuzzi, zigzagueante, enzimáticas, coenzimas, zigzagueando, hertzianas, hertziana, azimut, zigurat, zigoto, zigzagueo, dazibao, zigzagueantes, hertziano, paparazzis, jazzistas, ázimo, fanzine, zigzags, zigzaguear, jacuzzis, zigurats, fanzines, jazzista, zigzagueaba, hertzianos
+
+Todas las palabras que son excepción a la regla que dice que el fonema /z/ se escribe con "c" antes de la vocal "i"
+
+40 PALABRAS QUE SON EXCEPCIÓN A LA REGLA QUE DICE QUE EL FONEMA /Z/ SE ESCRIBE CON "C" ANTES DE LA VOCAL "E"
+zen, zeta, pizzería, eczema, neozelandés, kamikaze, zenit, blazer, eczemas, kamikazes, pizzerías, neozelandeses, zelotes, zelotas, zelota, zetas, neozelandesa, bulldozer, azerbaiyanos, azerí, zepelín, zegrí, neozelandesas, zeda, azeríes, zebra, zenda, azerbaiyano, azerbaiyana, zepelines, zelote, zeugma, azerbaijanos, eczematosa, zebras, zeína, zelandeses, zenzontles, eczematosos, azerbaiyanas
+
+Todas las palabras que son excepción a la regla que dice que el fonema /z/ se escribe con "c" antes de la vocal "e"
+
+NAZIS EN OTROS IDIOMAS
+en latín: adj socialismi nationalis próprius.
+en griego: n. να_ιστ^`
+en francés: n. nazi
+en italiano: n. nazista
+en portugués: n. nazista
+en inglés: nazi, of or pertaining to the nazis, of nazi beliefs, pertaining to nazism
+en alemán: n. nazi
+ 
+
+LA LIBERTAD, SANCHO, ES UNO DE LOS MÁS PRECIOSOS DONES
+
+
+La libertad, Sancho, es uno de los más preciosos dones que a los hombres dieron los cielos; con ella no pueden igualarse los tesoros que encierra la tierra ni el mar encubre; por la libertad, así como por la honra, se puede y debe aventurar la vida
+
+Leer más...
+
+EL AMOR JUNTA LOS CETROS CON LOS CAYADOS
+
+
+El amor junta los cetros con los cayados, la grandeza con la bajeza, hace posible lo imposible, iguala diferentes estados y viene a ser poderoso como la muerte
+
+Leer más...
+
+EL PRONOMBRE, CLASES DE PRONOMBRES
+pronombres
+¿QUÉ ES EL PRONOMBRE?
+Los pronombres son uno de los elementos más comunes y más usados de la lengua. Se definen como las palabras que sustituyen al nombre, por lo que necesariamente deben aparecer después del mismo. Esta presencia previa es importante en el discurso narrativo, para poder entender el significado de una frase o texto, aunque sintacticamente son morfemas independientes. Por consiguiente, los pronombres no tienen significado propio, y éste dependerá del nombre al que esté reemplazando.
+
+
+Existen varios tipos diferentes de pronombres: personales (divididos en átonos, tónicos y posesivos), demostrativos, relativos, interrogativos, indefinidos y numerales.
+
+Leer más...
+
+POETA DEL DÍA
+ Vicente Huidobro
+Vicente Huidobro
+
+POETISA DEL DÍA
+ Adela Zamudio
+Adela Zamudio
+
+HERRAMIENTAS
+Buscar palabras con letras
+Sinónimos y Antónimos
+Definiciones
+Rimar palabras
+¿Cómo se escribe?
+Conjugar verbos
+Palabras que empiezan con
+Palabras que terminan en
+Buscar palabras por patrón
+Separar palabras en sílabas
+Categoría gramatical y tiempo verbal
+Refranes y dichos
+Números a letras
+¿Lleva tilde?
+Blog de gramática
+Blog de Literatura
+Ortografía fácil
+Frases de Libros
+POESÍAS
+Poetas
+Buscador de poemas
+LOS 15 ERRORES ORTOGRÁFICOS MÁS COMUNES
+errores comunes de ortografía
+
+Leer más...
+
+PALABRAS CON
+Palabras con nacla
+Palabras con naco
+Palabras con nacon
+Palabras con nacos
+Palabras con nacr
+Palabras con nacre
+Palabras con nacri
+Palabras con nacs
+SINÓNIMOS Y ANTÓNIMOS
+Sinónimos y Antónimos de nada
+Sinónimos y Antónimos de nadería
+Sinónimos y Antónimos de nadie
+Sinónimos y Antónimos de narcótico
+Sinónimos y Antónimos de narigudo
+Sinónimos y Antónimos de narigón
+Sinónimos y Antónimos de narrativa
+Sinónimos y Antónimos de nativo
+SOBRE BUSCAPALABRA
+BUSCAPALABRA EN TU WEB
+POLÍTICA DE PRIVACIDAD
+
